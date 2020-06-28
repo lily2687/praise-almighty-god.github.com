@@ -1,10 +1,7 @@
 ## The Church of Almighty God Variety Show | "The Lord Is Knocking" | Welcome the Return of the Lord
 
-<a href="https://youtu.be/WpN9jOo-bvA
-" target="_blank">
-<a href="https://youtu.be/WpN9jOo-bvA
-" target="_blank"><img src="http://2.bp.blogspot.com/-Eg4Sjs0z-eE/XulQYT0dPlI/AAAAAAAABAg/5IWdxH3vY6IZ5WdZ6OQGbqvNAIW5BGWXQCK4BGAYYCw/s1600/XBA040-B-%25E4%25B8%25BB%25E5%259C%25A8%25E5%258F%25A9%25E9%2596%2580-ZB20180823-EN.jpg" 
-alt="IMAGE ALT TEXT HERE" width="923" height="1290" border="10" /></a>
+width="640" height="498" src="https://www.holyspiritspeaks.org/videos/the-Lord-is-knocking/" allowfullscreen="">
+
 
 The skit The Lord Is Knocking explains how, in the last days, the Lord knocks at the door of our hearts with His words, and that wise virgins can hear God's voice and feast with the Lamb.
 
