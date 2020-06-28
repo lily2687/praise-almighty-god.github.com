@@ -1,7 +1,7 @@
 ## [The Church of Almighty God](https://www.holyspiritspeaks.org/) Variety Show | "The Lord Is Knocking" | Welcome the Return of the Lord
 
 <a href="https://youtu.be/WpN9jOo-bvA" target="_blank"><img src="http://img.youtube.com/vi/WpN9jOo-bvA/0.jpg" 
-alt="Christian Variety Show, Welcome the Lord's Return" width="640" height="360" border="10" /></a>
+alt="Christian Variety Show, Welcome the Lord's Return" width="640" height="360" border="0" /></a>
 
 
 The skit The Lord Is Knocking explains how, in the last days, the Lord knocks at the door of our hearts with His words, and that wise virgins can hear God's voice and feast with the Lamb.
