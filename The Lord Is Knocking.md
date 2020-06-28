@@ -1,4 +1,4 @@
-##The Church of Almighty God Variety Show | "The Lord Is Knocking" | Welcome the Return of the Lord
+## The Church of Almighty God Variety Show | "The Lord Is Knocking" | Welcome the Return of the Lord
 
 <video src="https://youtu.be/WpN9jOo-bvA" controls="controls" width="640" height="320" autoplay="autoplay">
 </video>
