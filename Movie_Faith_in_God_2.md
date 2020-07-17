@@ -1,0 +1,11 @@
+<p align="center"><a href="https://youtu.be/eOAbKgh3DTw" target="_blank"><img src="http://img.youtube.com/vi/eOAbKgh3DTw/0.jpg" alt="Jesus Return, Faith in God, the Church of Almighty God" width="640" height="360" border="10" /></a><p>
+
+## 2019 [Gospel Movie](https://www.holyspiritspeaks.org/video-category/kingdom-Gospel-testimonies/) | "Faith in God 2 – After the Church Falls" | The True Story of Chinese Christians
+
+Since the Chinese Communist Party came to power, it has continuously suppressed and persecuted Christianity and Catholicism in order to fully eradicate all religious beliefs and establish China as a zone of atheism. Particularly since Xi Jinping became President the CCP's attacks on faith have reached a peak, and even the officially sanctioned Three-Self Church is being eradicated and crosses are being torn down.
+
+Yu Congguang is an evangelist who makes a dangerous escape from a CCP mass arrest. Afterward, he makes his way to the home of Three-Self Patriotic Movement Christian Chen Song'en. Chen Song'en's Three-Self Patriotic Movement church is demolished by the CCP, and some in the church, after listening to the teachings of their pastors and elders, pray for the CCP regime, believing that by doing so, they are keeping the words of the Lord Jesus, "Love your enemies and pray for those who persecute you" (Matthew 5:44). However, many believers are confused, because despite the fact that they have prayed for blessings for the CCP for so many years, the CCP has not only failed to repent, but has even demolished their church. They wonder: Does praying for the CCP actually accord with God's will? The congregation argues about the question but can't reach a conclusion. Later, through reading God's words and the fellowship of Yu Congguang and his associate, Chen Song'en and the others learn the true meaning of the Lord Jesus' teaching to "love your enemies." They also gain discernment of the CCP's satanic essence, which is to resist God and loathe the truth, and clearly see the dangerous consequences of following the pastors and elders down the Three-Self path and relying on the protection of a satanic ruling power …
+
+
+Click to watch more **[Christian Movies Based on True Stories](https://www.holyspiritspeaks.org/tag/Christian-movies-based-on-true-stories/)**
+ 
