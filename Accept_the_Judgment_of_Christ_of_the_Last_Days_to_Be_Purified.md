@@ -14,7 +14,7 @@ but this does not prove that you are not sinful, and are not impure.
 How can you be saintly if you have not been changed? 
 Within, you are beset by impurity, selfish and mean, 
 yet you still wish to descend with Jesus— you should be so lucky!
-You have missed a step in your **[belief in God](https://www.holyspiritspeaks.org/testimonies/have-true-faith-in-God/): 
+You have missed a step in your **[belief in God](https://www.holyspiritspeaks.org/testimonies/have-true-faith-in-God/)**: 
 You have merely been redeemed, but you have not been changed. 
 For you to be after God’s heart, 
 God must personally do the work of changing and cleansing you; 
