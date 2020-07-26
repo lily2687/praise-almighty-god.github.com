@@ -1,6 +1,6 @@
 ## That Was Close! I Nearly Let the Lord Pass Me By (Part 1)
  
-By Weilian, United States
+<p align="center">By Weilian, United States<p>
  
 Not long after I finished high school, I was tricked into joining a pyramid scheme by a friend. I really wanted to get out of it, but there was just no way for me to do it. I was helpless and in pain and felt that my future was dark, devoid of light—I was totally lost. In July 2016, in the midst of my pain and helplessness a copy of the Bible made its way into my hands; I learned that God created the world and human beings. I was moved by the Lord Jesus’ redemption of mankind and silently said to God, “If you’re really such a loving, merciful God in this universe, in this world, I ask You to help me escape from my pain and lead me to a place where I can change my fate, a place full of hope.” I made this entreaty often, and amazingly, less than one month later I was on my way to the United States.
 The very first thing I did after getting to the States was find a Chinese church in New York’s Chinatown, and after that I attended service every Sunday.
